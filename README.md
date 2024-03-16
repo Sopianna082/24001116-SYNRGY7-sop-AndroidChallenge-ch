@@ -1,0 +1,1 @@
+# 24001116-SYNRGY7-sop-AndroidChallenge-ch
